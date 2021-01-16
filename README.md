@@ -1,3 +1,3 @@
 # Learning a new skill
 
-keep pushing
+keep pushing!
